@@ -2,10 +2,10 @@
 
 meu name é minueta **(minu)**
 
-Estou estudando na Alura.
+**ₑₛₜₒᵤ ₑₛₜᵤdₐₙdₒ ₙₐ ₐₗᵤᵣₐ.**
 
-Estou me desenvolvendo na linguagem JavaScript.
+**ₑₛₜₒᵤ ₘₑ dₑₛₑₙᵥₒₗᵥₑₙdₒ ₙₐ ₗᵢₙgᵤₐgₑₘ ⱼₐᵥₐₛcᵣᵢₚₜ.**
 
-Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos.
+**ᵤₜᵢₗᵢzₒ ₑₛₛₑ ₑₛₚₐçₒ ₚₐᵣₐ ₘᵢₙₕₐ ₒᵣgₐₙᵢzₐçãₒ ₑ cₒₘₚₐᵣₜᵢₗₕₐₘₑₙₜₒ dₒₛ ₘₑᵤ ₚᵣₒⱼₑₜₒₛ dₑₛₑₙᵥₒₗᵥᵢdₒₛ.**
 
 ![image](https://github.com/user-attachments/assets/83263f5f-cb34-41c0-94d5-ce9acc604ad3)   **🇪  🇺   🇻  🇪  🇮**
