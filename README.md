@@ -8,6 +8,6 @@ meu name é minueta **(minu)**
 
 **ᵤₜᵢₗᵢzₒ ₑₛₛₑ ₑₛₚₐçₒ ₚₐᵣₐ ₘᵢₙₕₐ ₒᵣgₐₙᵢzₐçãₒ ₑ cₒₘₚₐᵣₜᵢₗₕₐₘₑₙₜₒ dₒₛ ₘₑᵤ ₚᵣₒⱼₑₜₒₛ dₑₛₑₙᵥₒₗᵥᵢdₒₛ.**
 
-![image](![image](https://github.com/user-attachments/assets/81df0a8e-ba69-4d86-af2f-0fc166e8243a)
+![image](https://media3.giphy.com/media/bC0caT4xYU8qQ/200.webp?cid=ecf05e4766un6z55g3edtu0htuyn01eb2ad7ogzlzaujpbht&ep=v1_gifs_search&rid=200.webp&ct=g)
 )   **🇪  🇺 
 **
