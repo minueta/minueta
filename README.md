@@ -10,4 +10,3 @@ meu name é minueta **(minu)**
 
 ![image](https://media3.giphy.com/media/bC0caT4xYU8qQ/200.webp?cid=ecf05e4766un6z55g3edtu0htuyn01eb2ad7ogzlzaujpbht&ep=v1_gifs_search&rid=200.webp&ct=g)
 🇪  🇺 
-ana.cadene.mello@escola.pr.gov.br
